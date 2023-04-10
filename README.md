@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yatrithoria
-- 👀 I’m interested in software
+- 👀 Software / Tech / World 💻🌎
 - 💞️ I’m looking to collaborate on programming practices
 - 📫 How to reach me : yatri.thoria.2017@gmail.com
 
